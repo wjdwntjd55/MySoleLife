@@ -1,1 +1,1 @@
-# MySoleLife
+# MySoloLife
